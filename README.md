@@ -1,4 +1,3 @@
-# papineau_privacy_policy
 
 Papineau Locker Privacy Policy Last updated: Feb 25, 2025
 
